@@ -1,0 +1,1 @@
+# 23423043_Andro-Lintang-Mahaegan_UTS-Visi-Komputer
