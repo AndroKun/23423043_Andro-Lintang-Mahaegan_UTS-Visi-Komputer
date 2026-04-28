@@ -1,1 +1,2 @@
-# 23423043_Andro-Lintang-Mahaegan_UTS-Visi-Komputer
+## UTS Visi Komputer IF23B
+Oleh Andro Lintang Mahaegan - 23423043
